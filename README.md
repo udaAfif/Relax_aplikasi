@@ -1,2 +1,2 @@
 
-project ini mengikuti tutorial di youtube,google, jangan dihujat ya
+afifalamin320@gmail.com
